@@ -4,9 +4,8 @@
 - talk to me on my discord! (cuewotted)
 - also join my dscird server (https://discord.gg/cgdUxd8eW7)
 
-I am just your avarage 15 year old who really likes to make games in simple game engines really
-although, i do have some big projects on the works like boomsword and another game i'm currently
-making
+I am just your avarage 16 year old who really likes to make games in simple game engines really
+although, i do have some big projects on the works.
 
 I have lots of appreciation for indie games, and how they are made
 
